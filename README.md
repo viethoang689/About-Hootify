@@ -3,6 +3,7 @@ Are you open to job opportunities with a satisfying salary, better working envir
 
 ## We are on a mission
 Hootify was started by the techies who believe that tech talents are more powerful than they think. They deserve a fairer recruitment process - whether a clear guide for interview process or a good salary and benefits package. That’s why we aim to build a more transparent and unbiased recruitment with talents in control.
+
 Today, Hootify is the first Asia's Virtual Talent Representative platform that puts tech talents in control by reversing the process of recruitment - companies apply to interview tech talents.
 
 ## Why choose Hootify for your next career move?
@@ -24,3 +25,9 @@ Your dedicated Talent Advisor is here as your personal advocate and go-to expert
 
 ## FAQs
 Check out on https://www.joinhootify.com/en/talent
+
+## Contact
+* Homepage: https://joinhootify.com/
+* Linkedin: https://www.linkedin.com/company/hootify
+* Facebook: https://www.facebook.com/hootify
+* Email: viet.hoang@joinhootify.com | Viet Hoang - Talent Advisor Lead
